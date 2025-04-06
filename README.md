@@ -1,4 +1,4 @@
-i cant do anything better but this is my first time to develop website but video kam gari ra xaina ka garam.here is the emoji hehe ❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️ aaru aaya nw hoo jati aaunxa teti gara ko aako choti garda i will make perfect one. 
+i cant do anything better but this is my first time to develop website but video kam gari ra xaina ka garam.here is the emoji hehe ❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️ aaru aaya nw hoo jati aaunxa teti gara ko aako choti garda i will make perfect one. its is for you madam jii.
 
 
 
